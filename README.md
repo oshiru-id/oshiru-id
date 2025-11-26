@@ -18,7 +18,7 @@
   
 </div>
 
-## 🌟 About Me|0wner.sc
+## 🌟 About Me | owner sc
 
 <div align="center">
   
